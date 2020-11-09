@@ -5,6 +5,8 @@
 
 # ~ FL Studio on osu
 
+as a small note i also post many other skins on this drive link: https://drive.google.com/drive/folders/1QVdhSOwYN-JgMAjfvFzGaV2bO4UpVuHN
+
 
 # [FL Studio](http://download948.mediafire.com/rhxlw9864zsg/hbe0kfxqi4htjmb/-++++++++++++%23FL+Studio%23++++++++++++-.osk)
 ![](https://imgur.com/QXtBBPd.png)
