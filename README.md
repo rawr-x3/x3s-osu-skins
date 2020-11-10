@@ -1,9 +1,9 @@
-# FL Studios Skins
+# x3's osu skins
 
 
 # Hi yes I make skins and I edit skins sometimes to my liking, please feel free to use them :3c
 
-# ~ FL Studio on osu
+# ~ rawr x3
 
 as a small note i also post many other skins on this drive link: https://drive.google.com/drive/folders/1QVdhSOwYN-JgMAjfvFzGaV2bO4UpVuHN
 
